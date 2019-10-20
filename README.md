@@ -1,2 +1,2 @@
 # hello-world
-first repo
+mercy thank God praise Jesus Christ
